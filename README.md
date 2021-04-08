@@ -1,4 +1,4 @@
- #Studio Street Roblox Group
+ # Studio Street Roblox Group
  
  Studio Street holds responsibility for assets for the Roblox group "Studio Street" as found here (https://www.roblox.com/groups/10215931/Studio-Street#!/about)
 
